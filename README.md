@@ -1,1 +1,5 @@
-First commit
+# LUKE
+
+I am your father!
+
+NUUUUUUUUUUUUUUuuuuuuuuu.......
